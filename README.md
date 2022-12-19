@@ -1,1 +1,0 @@
-# MEMENTO-SKT_Document
